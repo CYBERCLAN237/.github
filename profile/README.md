@@ -24,6 +24,9 @@ Stay updated and join the conversation through our official channels:
 
 - 🌐 **Website**: [xyber-clan.vercel.app](https://xyber-clan.vercel.app/)
 - 💬 **WhatsApp Community**: [Join our WhatsApp](https://chat.whatsapp.com/I9DkXTEZGXyLNHqmXPw8bZ)
+- 💼 **LinkedIn**: [XYBERCLAN](https://www.linkedin.com/company/xyberclan/)
+- 📺 **YouTube**: [@xyberclan](https://youtube.com/@xyberclan?si=0eZcAmQqK9X4kNic)
+- 🎵 **TikTok**: [@xyberclan](https://www.tiktok.com/@xyberclan?_r=1&_t=ZM-92Y1vL3Qv7Y)
 
 ---
 
