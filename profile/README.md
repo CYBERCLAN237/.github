@@ -18,6 +18,13 @@ We are always looking for passionate individuals to join our ranks. Whether you 
 ### 📝 How to Join
 To join our organization, please follow the instructions in our [**Join Request Repository**](https://github.com/CYBERCLAN237/REJOINDRE-XYBERCLAN).
 
+## 🔗 Connect With Us
+
+Stay updated and join the conversation through our official channels:
+
+- 🌐 **Website**: [xyber-clan.vercel.app](https://xyber-clan.vercel.app/)
+- 💬 **WhatsApp Community**: [Join our WhatsApp](https://chat.whatsapp.com/I9DkXTEZGXyLNHqmXPw8bZ)
+
 ---
 
 <p align="center">
