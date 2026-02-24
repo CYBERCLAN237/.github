@@ -134,7 +134,7 @@ Stay updated and join the conversation through our official channels:
 
 ### 💜 *"Empowering the next generation of tech enthusiasts through collaboration and open-source."*
 
-**Built with ❤️ from Cameroon 🇨🇲 by the XyberClan**
+**XyberClan we build the future**
 
 <br/>
 
