@@ -22,7 +22,7 @@ To join our organization, please follow the instructions in our [**Join Request 
 
 Stay updated and join the conversation through our official channels:
 
-- 🌐 **Website**: [xyber-clan.vercel.app](https://xyber-clan.vercel.app/)
+- 🌐 **Website**: [Xyberclan](https://xyberclan.dev/)
 - 💬 **WhatsApp Community**: [Join our WhatsApp](https://chat.whatsapp.com/I9DkXTEZGXyLNHqmXPw8bZ)
 - 💼 **LinkedIn**: [XYBERCLAN](https://www.linkedin.com/company/xyberclan/)
 - 📺 **YouTube**: [@xyberclan](https://youtube.com/@xyberclan?si=0eZcAmQqK9X4kNic)
